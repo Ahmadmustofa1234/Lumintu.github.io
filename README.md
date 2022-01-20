@@ -1,2 +1,2 @@
 # Lumintu.github.io
-https://lumintu.github.io/
+https://ahmadmustofa1234.github.io/Lumintu.github.io/
